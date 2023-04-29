@@ -1,4 +1,4 @@
-### OLÁ! EU SO O CLAUDIO ✌🏻
+### OLÁ! EU SOu O CLAUDIO ✌🏻
 estudantes de 'HTML,
 CSS e JAVASCRIPT
 
