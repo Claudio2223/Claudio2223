@@ -2,7 +2,9 @@
 
 ### Olá Claudio , eu passei por aqui no seu github 
 ### Não esqueça de deslogar do computador , pode aparecer pessoas má intencionadas...
-###Ass:Eu
+
+
+### ps: Avisa pra sua sala que a aula de sabádo vai ser massa.
 
 
 
